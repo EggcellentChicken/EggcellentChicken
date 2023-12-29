@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @EggcellentChicken
+- 👀 I’m interested in Ducks
+- 🌱 I’m currently learning spanish
+- 💞️ I’m looking to collaborate on Blockchain Projects
+- 📫 Mail me @  EggcellentChickenOne@gmail.com
